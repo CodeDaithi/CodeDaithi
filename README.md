@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @CodeDaithi
+- 🌱 I’m currently learning in GMIT
